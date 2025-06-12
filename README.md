@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anujisdead
-- 👀 I’m interested in ...Machine Learning, Generative AI, LLM
-- 🌱 I’m currently learning ...AI/ML
-- 💞️ I’m looking to collaborate on ...baddies
+- 👀 I’m interested in ...Machine Learning, Generative baddies, Large Languages Mommies
+- 🌱 I’m currently learning ...females
+- 💞️ I’m looking to collaborate with ...baddies
 - 📫 How to reach me ...anuj.nimmalas@gmail.com
 Guys you give me a paid internship/job offer, I will give you a blowjob
 
